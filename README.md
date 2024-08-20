@@ -1,1 +1,1 @@
-# TEQlockTwo-created-by-TEQcloud
+# TEQlockTwo created by TEQcloud
